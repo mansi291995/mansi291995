@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mansi
+- 👀 I’m interested in ...
+- 🌱 I’m currently doing B.E(Computer)
+- 📫 reach me through mansiekbote564@gmail.com
